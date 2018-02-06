@@ -1,6 +1,13 @@
 # neonbullsh-t
 @POETRIQUE
 
+- - -
+
+![NEONBULLSH_T -- cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
+
+- - -
+- - -
+
 ## eighteen plus
 
 - - -
