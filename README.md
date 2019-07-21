@@ -27,7 +27,7 @@ the heat of sex
 that atomic fusion of togetherness
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -43,7 +43,7 @@ she offers wisdom
 in the form of a plump cherry tart      
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -59,7 +59,7 @@ and i, them too
 down Eros' garden       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -76,7 +76,7 @@ upon bone tooth
 that tickles life's breath      
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -87,7 +87,7 @@ i see not, the right soul yet
 i am a virgin       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -98,7 +98,7 @@ to a rock in outer space
 to grow yet taller      
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -119,7 +119,7 @@ it burns like data
 and connects me to the holy internet
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -130,7 +130,7 @@ of darkness, and light indeed
 i need to do good       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -148,7 +148,7 @@ in that, with my soul
 alone i see     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -163,7 +163,7 @@ when i saw the world
 at its opposite of best     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -178,7 +178,7 @@ can be cold as she is beautiful
 just like momma     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -198,7 +198,7 @@ and my seed will
 surely rule the heavens       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -218,7 +218,7 @@ you are too scared,
 to become       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -241,7 +241,7 @@ in the very heart
 of heaven's bell        
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -256,7 +256,7 @@ i am as firm as the roots
 of the ancient vatican      
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -272,7 +272,7 @@ of the barrel, of the
 gunpowder kingdom: **Africa**       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -284,7 +284,7 @@ from falling in the lane
 prescribed by society
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -303,7 +303,7 @@ three faces on my soul
 i am crooked: i must confess        
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -321,7 +321,7 @@ hear my negro roar
 **_we can build a tree_**       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -341,7 +341,7 @@ the man with the mark
 of Uhuru - of unity
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -366,7 +366,7 @@ and breathe ether
 no debate       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -383,7 +383,7 @@ her roots do run deep
 way past the earth's soul       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -399,7 +399,7 @@ say nothing
 inbetween       
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)              
+&copy; Téy           
 
 - - -
 
@@ -414,7 +414,7 @@ do what you will
 just cease pretence     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -426,7 +426,7 @@ of your, seemingly
 numerous strengths      
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -440,7 +440,7 @@ i don't like to lie
 **political afro-samurai_**     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -464,7 +464,7 @@ like the nile
 encompass Africa     
 
 [@POETRIQUE](http://instagram.com/poetrique)              
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -480,7 +480,7 @@ that to religious vanity
 i should never respond     
 
 [@POETRIQUE](http://instagram.com/poetrique)            
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -502,7 +502,7 @@ i mix my lean up with
 rich royal wine     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -513,7 +513,7 @@ the truest son of Fela
 monikulapo     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -527,7 +527,7 @@ ancient instincts
 ancient chords     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -545,7 +545,7 @@ i am the lion
 of the tribe of Africa     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -562,7 +562,7 @@ more stacks, more racks, more bands
 wealth must cover my bed     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -579,7 +579,7 @@ and farther from
 my foolish sin     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -590,7 +590,7 @@ calculative and unique
 mandarin, i breathe     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -606,7 +606,7 @@ hold us still, for we are rebels
 we bow before no throne     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -617,7 +617,7 @@ you cant know what i've been through
 soldier - wild child slow     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -635,7 +635,7 @@ stop now
 your own shadow, defeat
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -657,7 +657,7 @@ why do all my actions
 fall flat of decisive     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -675,7 +675,7 @@ wears in truth
 the mask of indecision     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -691,7 +691,7 @@ cool, and a bit playful
 she is an **amazon**            
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -707,7 +707,7 @@ a heart, when
 one's soul starts to weep           
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -718,7 +718,7 @@ folds my socks, but watches my feet
 icarus dont walk            
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -741,7 +741,7 @@ yet the blanched and undeserving
 find love enough, to cheat upon      
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -753,7 +753,7 @@ find love enough, to cheat upon
 like fine wine     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -768,7 +768,7 @@ to the melody of reality
 the symphony of nature     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -788,7 +788,7 @@ you can fall me
 _el fumito_     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -799,7 +799,7 @@ _priest:_ **...** **remorseful**
 _king:_ **...** **proud**       
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -818,7 +818,7 @@ i am rare
 **_i've been told_**     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -839,7 +839,7 @@ i felt then coy
 while acting the fool     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -857,7 +857,7 @@ to pour out love
 and scatter my seed     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -874,7 +874,7 @@ and too, that for my emptiness
 there is no honest need     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -889,7 +889,7 @@ indeed, it appears to be
 just some basic shyt     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
 
 - - -
 
@@ -904,4 +904,4 @@ blind to my inner turmoil
 i need love: please give     
 
 [@POETRIQUE](http://instagram.com/poetrique)       
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+&copy; Téy    
